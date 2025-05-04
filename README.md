@@ -1,1 +1,0 @@
-# sipalingtopup-banner.jpg
